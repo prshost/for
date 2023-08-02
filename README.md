@@ -4,3 +4,4 @@
 <a href="https://groups.google.com/g/freetemplates_ir">https://groups.google.com/g/freetemplates_ir</a><br />
 <a href="https://cutt.ly/pwujFV1A">https://cutt.ly/pwujFV1A</a><br />
 <a href="https://cutt.ly/EwupBPia">https://cutt.ly/EwupBPia</a><br />
+<a href="https://softwareisac.jp/ipa/index.php?2023-08-02">softwareisac</a><br />
