@@ -4,3 +4,8 @@
 <a href="https://cutt.ly/pwujFV1A">https://cutt.ly/pwujFV1A</a><br />
 <a href="https://cutt.ly/EwupBPia">https://cutt.ly/EwupBPia</a><br />
 <a href="https://softwareisac.jp/ipa/index.php?2023-08-02">softwareisac</a><br />
+<a href="https://chapsasan.ir">چاپ ارزان</a><br />
+<a href="https://kushanbook.ir">خرید کتاب دست دوم</a><br />
+<a href="https://esmaili-shop.ir">چرم بزی</a><br />
+<a href="https://esmaili-shop.ir">مولتی اسپیندل</a><br />
+<a href="https://neliniplayhouse.ir">خانه بازی</a><br />
